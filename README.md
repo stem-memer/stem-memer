@@ -1,7 +1,7 @@
 - 👋 Hi, i am stem memer 
 - 👀 I’m interested in getting control of btc 
 - 🌱 I’m currently learning how to hack 
-- 💞️ 
+- 💞️ love reddit, has answers to everrything
 - 📫 How to reach me(it is a secret)
 - 😄 Pronouns: non fluid penguin
 - ⚡ Fun fact: i wanted to be headofhostteam
