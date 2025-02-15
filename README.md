@@ -5,9 +5,11 @@
 - 📫 How to reach me(it is a secret)
 - 😄 Pronouns: non fluid penguin
 - ⚡ Fun fact: i wanted to be headofhostteam
-- https://drive.google.com/drive/folders/1rdVvDlcg_gSFwE9Ai4TTiYA3-TaZcriU?usp=sharing
+- https://drive.google.com/drive/folders/1x3V5joA5TSgmPBEy2dCJfucUgTe2d3m3?usp=sharing
 - pls do not visit the above url
-- 
+- an ASSET could be a pciture aswell 
+
+  https://www.threads.net/@stemfusion_meme_page
 
 <!---
 stem-memer/stem-memer is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
