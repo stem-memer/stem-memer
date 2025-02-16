@@ -1,3 +1,1 @@
-congrats on finding this 
-submit the following to the module head:
-stem.ctf{hello.world}
+empty file 
