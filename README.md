@@ -8,8 +8,7 @@
 - ⚡ Fun fact: i wanted to be headofhostteam
 - https://drive.google.com/drive/folders/1x3V5joA5TSgmPBEy2dCJfucUgTe2d3m3?usp=sharing
 - pls do not visit the above url
-- an ASSET could be a pciture aswell
-- 
+- an ASSET could be a picture as well 
 
   https://www.threads.net/@stemfusion_meme_page
 
